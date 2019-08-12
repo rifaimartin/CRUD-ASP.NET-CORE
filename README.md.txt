@@ -1,0 +1,5 @@
+# RISET INDIVIDUAL ABOUT ASP.NET FUNCTIONAL CRUD
+
+
+Enjoy!
+Always Happy for Everday
